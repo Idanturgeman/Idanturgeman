@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Idanturgeman
-- 👀 I’m interested of making the world a better place.
+- 👀 I’m interested of make the world as connected as possible.
 - 🌱 I’m currently learning a computer science.
 - 💞️ I’m looking to collaborate with a company that has a vision of leaving a mark at the world.
 - 📫 How to reach me: idantur55555@gmail.com.
